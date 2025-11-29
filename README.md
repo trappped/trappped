@@ -1,3 +1,3 @@
-##### <p align="center">[rentry](https://rentry.co/nayn)ㅤㅤㅤ&ㅤㅤㅤ[atabook](https://infected.atabook.org/)</p>
-##### <p align="center">![](https://file.garden/Z6h2bh-K9iNK3QVg/image_2025-11-14_001132187-removebg-preview.png)</p>
-##### <p align="center">![](https://komarev.com/ghpvc/?username=trappped&color=261012&label=⠀⠀⠀kodalings⠀⠀　)</p>
+##### <p align="center">[rentry](https://rentry.co/nayn)⠀ &⠀ [atabook](https://infected.atabook.org/)</p>
+##### <p align="center">![](https://media.discordapp.net/attachments/1174359818836910140/1444353836528435351/G5aCtW2XIAA62oA-removebg-preview.png?ex=692c66d5&is=692b1555&hm=c0197f6cb30b6728233108e6cef03d7ee01639b750a8fa25b7c2adc272fd5e52&=&format=webp&quality=lossless&width=337&height=224)</p>
+##### <p align="center">![](https://komarev.com/ghpvc/?username=trappped&color=964645&label=⠀⠀⠀kodalings⠀⠀　)</p>
